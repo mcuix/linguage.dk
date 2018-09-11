@@ -1,1 +1,1 @@
-Under Construction
+These pages are under construction.
